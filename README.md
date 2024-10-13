@@ -1,3 +1,6 @@
-->![](https://i.ibb.co/jD10L9j/m-1.png)<-
-->![](https://i.ibb.co/gyw9Dkm/tumblr-71e251f969a2508e8a8fd98d131792fc-a152cdf6-640-1.gif)<-
-->![](https://i.ibb.co/pLV8x2Q/m-2.png)<-
+<p align="center">
+  <img src="https://i.ibb.co/hM20mPj/m.gif)" />
+</p>
+<p align="center">
+  <img src="https://i.ibb.co/pLV8x2Q/m-2.png" />
+</p>
